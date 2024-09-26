@@ -1,8 +1,8 @@
 ## Identitas
 
-Nama: 
+Nama: Mardalena
 
-NIM : 
+NIM : 607062400037
 
 ## Instruksi
 
